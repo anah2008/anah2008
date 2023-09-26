@@ -4,8 +4,8 @@ Eu me chamo Ana
 
 -sou estudante
 
--sejam bem vindos!
-
 -email:ana.hernandes.oliveira@escola.pr.gov.br
 
 -sou aquariana
+
+-sejam bem vindos!
