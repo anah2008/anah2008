@@ -10,4 +10,6 @@ Eu me chamo Ana
 
 -sejam bem vindos!
 
-![](![A18f](https://github.com/anah2008/anah2008/assets/144922310/7c036689-dae2-42a8-8f54-6713270c3ca8))
+![](https://media.tenor.com/iPe9Cc0775wAAAAC/elif-elif-reis.gif)
+
+
